@@ -292,6 +292,7 @@ Satan
 Punxi8__
 [Prodam](https://github.com/Pr0dam)
 B3n7y
+[redox](https://instagram.com/noheart.redox)
 
 ## Tips
 [Archibaald](https://github.com/Archibaald-dev)
